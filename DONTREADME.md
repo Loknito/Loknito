@@ -1,1 +1,1 @@
-i do the scratch stuff or somethign. now go do something good with your life bye.
+i do the coding stuff or somethign.
